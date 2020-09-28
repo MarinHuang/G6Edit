@@ -4,3 +4,5 @@
 G6文档   https://www.yuque.com/antv/g6
 
 预览地址 https://www.hkk.life/G6Edit
+
+QQ: 531068175
